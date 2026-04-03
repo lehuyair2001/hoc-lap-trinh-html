@@ -6,25 +6,6 @@ dsvdsf sd sdf sd
  sdv s sd sf sdf fsd 
  sdvsd sdv sdf 
  erger erger ergerer gẻg
- rgrth r tf hrthr rth
- fgn rtfh rh rt hrt h
- f gfgn fg ng hg
- g hmghmghm ghm hgj
- gf nghm ghm ghm h
- gh ghm ghm ghm
-sdvdsv 
-sdv
-sd
-dvs
-sd
-ds
-v
-vds
-dsv
-dsv
-dvs
-
-dvs
-dvs
-vd
-s
+sdcsd csdc sdc sdc sdcsdcsdcsd csd sdcsdc sdc
+sd csdc sdc sdcs dcsd csdc sdcs dcsdc sdc sdc sdc
+sd csdc sdc sdc dsc sdcsd sd csdc sdc sdcsd sdc sdc 
