@@ -2,26 +2,17 @@
 html là gì?
 làm sao có bằng?
 mỗi ngày học 1 bài ?
-dsvdsf sd sdf sd sdcsdcsdcsdcsdcsd csdc sdc 
-sdc sdc sd csd c sdv s sd sf sdf fsd s dcsdc sdc
-s cdsdc sd csdc sdvsd sdv sdf  sdcsdc sdcsdc s
-sdc sd csdcsdcsdc sd erger erger ergerer gẻg
-sdcsd csdc sdc sdc sdcsdcsdcsd csd sdcsdc sdc
-sd csdc sdc sdcs dcsd csdc sdcs dcsdc sdc sdc sdc
-sd csdc sdc sdc dsc sdcsd sd csdc sdc sdcsd sdc sdc 
-fg bfgb fgb fgb fgb fgb fgb fgb fgb fgb fgb fg bfgbf
-bfg bfgb fgb fgb fgb fgb fgb fgbfgb fgb fgb fgb fgb fgb 
- fgb fbg fgb fgb fgb fgb fgb fgb fgb fgb fgb fsdc gb fgb fgb fgb 
- fg b fgb gfb fg bfg bfgbgf bgf sd csdc sdc sdcsdc 
-sd sd cs dcsdcsdc sdc sdsdc sdc sdc sdc sd csdcs
-d bdfb db db db db db db db d d bd dfbdfbdfbdfbd
- brtbrbr  sv sdv sv sdv s vsv sv sv
-sadcsdc sdc ds sdc sdvdfv dfdfv df vdf
-dfvd fv dfv dfvdv dfv dfv
-dfv dfv dfv dfvdfvd fvdfv df
- dfv dfvdfv dfv dfv dfv dfv dfv dfv d
-  dfv df vdfv dfv dvdfv dfv dfvdfv dfv
-   dfv dfv dfv dfv dfvdfv dfv dfv df df df 
+day 
+day 1
+cretor acc github vs X accdv sdfv 
+viet tieu su, tinhs pointsdvf sdf v
+tạo acc x mới cho hnayds vsdsdv sdv 
+làm sao nhảy?
+nhảy làm gì?
+đam mê ko?
+học nhanh
+làm nhiều
+test nhiều  sdv sdv sdv sd
 làm sao nhảy?
 nhảy làm gì?
 đam mê ko?
